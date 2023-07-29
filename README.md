@@ -4,6 +4,14 @@
 
 ![Untitled888](https://user-images.githubusercontent.com/81384987/236854925-8284fc07-b28b-41eb-a00d-3b9a1b75cf43.png)
 
+![Akashdip Mahapatra (1)](https://github.com/akashdip2001/YouTube-Banner/assets/81384987/27e9a74c-65ae-4f72-a843-cb7313556b95)
+![Akashdip Mahapatra (2)](https://github.com/akashdip2001/YouTube-Banner/assets/81384987/4ed3bae2-2b07-4422-a43d-752a0217fccc)
+![Akashdip Mahapatra (3)](https://github.com/akashdip2001/YouTube-Banner/assets/81384987/f90c5d3c-11fb-4831-a619-90f2cd1a173e)
+![Akashdip Mahapatra (4)](https://github.com/akashdip2001/YouTube-Banner/assets/81384987/b1c95f77-8a43-451d-8cc1-d001b6d19eb8)
+![Akashdip Mahapatra (5)](https://github.com/akashdip2001/YouTube-Banner/assets/81384987/20ecb50c-c9e6-4720-9256-e2bea3cf7087)
+
+
+
 ![Untitled777](https://user-images.githubusercontent.com/81384987/236855035-c908e12c-3064-4830-92ad-a141c1e334aa.png)
 
 ![Screenshot from 2023-05-08 20-16-24](https://user-images.githubusercontent.com/81384987/236855425-de7b93c5-13a5-4d59-a04d-12ea5efa8c75.png)
