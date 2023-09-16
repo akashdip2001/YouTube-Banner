@@ -23,6 +23,7 @@
 ![66](https://user-images.githubusercontent.com/81384987/236900303-796102b3-8c23-45cd-870e-6002763d534a.png)
 ![6](https://user-images.githubusercontent.com/81384987/236900309-6ea87ccd-a684-4b8d-a44e-a0dd81faa761.png)
 ![5](https://user-images.githubusercontent.com/81384987/236900316-95fb0c59-dcd0-46f0-9638-06c1ceddf2ee.png)
+![youtube banner](https://github.com/akashdip2001/YouTube-Banner/assets/81384987/b2a3d1c2-5a6a-4a5b-a763-929756f5b020)
 
 
 ![Akashdip Mahapatra](https://github.com/akashdip2001/YouTube-Banner/assets/81384987/cdf31998-176d-4e26-90c1-2c64b9222cac)
