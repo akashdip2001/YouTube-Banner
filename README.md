@@ -1,4 +1,4 @@
-![akashdip mahapatra (2)](https://github.com/akashdip2001/YouTube-Banner/assets/81384987/921c7949-50af-4cf1-b20c-403459efa6b5)# YouTube-Banner
+# YouTube-Banner
 
 ![Untitled999](https://user-images.githubusercontent.com/81384987/236854881-a2988573-348f-48a8-9d26-65a82cd54eea.png)
 
