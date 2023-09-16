@@ -1,4 +1,4 @@
-# YouTube-Banner
+![akashdip mahapatra (2)](https://github.com/akashdip2001/YouTube-Banner/assets/81384987/921c7949-50af-4cf1-b20c-403459efa6b5)# YouTube-Banner
 
 ![Untitled999](https://user-images.githubusercontent.com/81384987/236854881-a2988573-348f-48a8-9d26-65a82cd54eea.png)
 
@@ -21,3 +21,8 @@
 ![66](https://user-images.githubusercontent.com/81384987/236900303-796102b3-8c23-45cd-870e-6002763d534a.png)
 ![6](https://user-images.githubusercontent.com/81384987/236900309-6ea87ccd-a684-4b8d-a44e-a0dd81faa761.png)
 ![5](https://user-images.githubusercontent.com/81384987/236900316-95fb0c59-dcd0-46f0-9638-06c1ceddf2ee.png)
+
+
+![Akashdip Mahapatra](https://github.com/akashdip2001/YouTube-Banner/assets/81384987/cdf31998-176d-4e26-90c1-2c64b9222cac)
+![akashdip mahapatra (2)](https://github.com/akashdip2001/YouTube-Banner/assets/81384987/c50dcedc-2355-4048-bae1-2ac3f5018ce4)
+![akashdip mahapatra (1)](https://github.com/akashdip2001/YouTube-Banner/assets/81384987/b8e6fec5-6994-49c0-921e-347772a09f8d)
