@@ -11,6 +11,7 @@
 ![Akashdip Mahapatra (5)](https://github.com/akashdip2001/YouTube-Banner/assets/81384987/20ecb50c-c9e6-4720-9256-e2bea3cf7087)
 
 ![akashdip mahapatra circle crop](https://github.com/akashdip2001/YouTube-Banner/assets/81384987/f9678001-9ce8-4282-a868-37406c13b184)
+![akashdip mahapatra circle crop](https://github.com/akashdip2001/YouTube-Banner/assets/81384987/9e499c40-e0d3-4139-b5a4-a3ae78d2407b)
 
 
 ![Untitled777](https://user-images.githubusercontent.com/81384987/236855035-c908e12c-3064-4830-92ad-a141c1e334aa.png)
